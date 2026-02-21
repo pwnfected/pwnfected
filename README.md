@@ -15,3 +15,9 @@
 <img width="99" height="56" alt="kamustamp" src="https://github.com/user-attachments/assets/b59454db-cfbf-448d-b1f8-bbc433ef32dd" />
 
 
+
+
+<div align="center">
+
+[straw](https://passerbyboy.straw.page/) . [ata](https://pwnfected.atabook.org/)
+
