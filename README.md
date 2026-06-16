@@ -30,6 +30,7 @@
 
 [prns](https://en.pronouns.page/@wakeupyourpsyche)
 
+[artfight](https://artfight.net/~wakeupyourpsyche)
 
 salem / nico
 
