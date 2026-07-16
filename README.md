@@ -28,6 +28,8 @@
 
 (im begging you go sign my ata)
 
+i'm from argentina, if you're following the misinformation train, block me and wait 4 years to get a chance to speak gng
+
 [prns](https://en.pronouns.page/@wakeupyourpsyche)
 
 [artfight](https://artfight.net/~wakeupyourpsyche)
