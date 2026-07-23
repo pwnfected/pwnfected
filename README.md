@@ -26,19 +26,19 @@
 
 [straw](https://wakeupyourpsyche.straw.page/) . [ata](https://wakeupyourpsyche.atabook.org/)
 
-(im begging you go sign my ata)
+(im begging y0u g0 sign my ata)
 
-i'm from argentina, if you're following the misinformation train, block me and wait 4 years to get a chance to speak gng
+i'm fr0m argentina, if y0u're f0ll0wing the misinf0rmati0n train, bl0ck me and re-evaluate
 
 [prns](https://en.pronouns.page/@wakeupyourpsyche)
 
 [artfight](https://artfight.net/~wakeupyourpsyche)
 
-salem / nico
+salem / megid0 / nic0
 
 <img width="125" height="125" alt="i love pete" src="https://github.com/user-attachments/assets/fb13b615-fb48-40bb-8ad3-d2c1190e7004" />
 
-this is my man, i do not like to share
+this is my man, i d0 n0t like t0 share
 
 
 <img width="250" height="50" alt="fo love" src="https://github.com/user-attachments/assets/cf95ffa8-1d12-4eb9-bbe9-34020ac3e2df" /> <img width="250" height="50" alt="antiai" src="https://github.com/user-attachments/assets/e66c748c-61b1-46da-b80c-4ff11caa2b0d" />
