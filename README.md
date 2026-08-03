@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=pwnfected&color=B536da&style=plastic&label=the_doomed&abbreviated=true)  
 
 
-<img width="600" height="600" alt="rosegraph" src="https://github.com/user-attachments/assets/85ab17e6-1b64-4bb2-8957-20b9813f910e" />
+<img width="600" height="600" alt="rosegraph" src="https://i.imgur.com/Q3wWNqI.png" />
 
 
 
