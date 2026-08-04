@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=pwnfected&color=B536da&style=plastic&label=the_doomed&abbreviated=true)  
+  ![](https://komarev.com/ghpvc/?username=pwnfected&color=B536da&style=plastic&label=unfortunate&abbreviated=true)  
 
 
 <img width="600" height="600" alt="rosegraph" src="https://i.imgur.com/Q3wWNqI.png" />
