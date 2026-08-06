@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=pwnfected&color=B536da&style=plastic&label=unfortunate&abbreviated=true)  
 
 
-<img width="600" height="600" alt="rosegraph" src="https://i.imgur.com/Q3wWNqI.png" />
+<img width="532" height="522" alt="erieri" src="https://github.com/user-attachments/assets/0c7a2472-4997-4241-b29c-5151c56e056f" />
 
 
 
