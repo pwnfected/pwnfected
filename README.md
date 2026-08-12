@@ -23,3 +23,9 @@
 
 <img width="250" height="30" alt="theark" src="https://github.com/user-attachments/assets/5b92ade8-5727-486f-a301-3d578947ed59" />
 
+ㅤ
+
+[<img width="35" height="85" alt="tiny eqi" src="https://github.com/user-attachments/assets/99aafa42-6179-47ab-8f57-dc2bded7f29f" />](https://github.com/ineedahumanstouch)
+
+𝗋𝖺𝗍
+
