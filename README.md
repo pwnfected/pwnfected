@@ -11,7 +11,7 @@
 
 𝗍𝗁𝖾𝗒ㅤㅤㅤㅤ.ㅤㅤㅤㅤ𝗁𝖾
 
-ㅤ[𝗌𝗍𝗋𝖺𝗐](https://wakeupyourpsyche.straw.page/)ㅤ
+ㅤ[𝗌𝗍𝗋𝖺𝗐](https://theprinceofdoom.straw.page/)ㅤ
 
 [𝗉𝗋𝗇𝗌](https://en.pronouns.page/@wakeupyourpsyche)ㅤㅤㅤㅤ夢ㅤㅤㅤㅤ[𝖺𝗍𝖺](https://wakeupyourpsyche.atabook.org/)
 
