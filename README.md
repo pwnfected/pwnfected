@@ -22,11 +22,12 @@
 𝖳𝗁𝖺𝗇𝗄 𝗒𝟢𝗎 𝖿𝟢𝗋 𝗒𝟢𝗎𝗋 𝗍𝗂𝗆𝖾.
 
 
-<img width="250" height="30" alt="theark" src="https://github.com/user-attachments/assets/5b92ade8-5727-486f-a301-3d578947ed59" />
+<img width="200" height="25" alt="theark" src="https://github.com/user-attachments/assets/5b92ade8-5727-486f-a301-3d578947ed59" />
+<img width="200" height="25" alt="my-blinkie" src="https://github.com/user-attachments/assets/17db2566-c575-4e89-ae0c-7508f19fe217" />
+<img width="200" height="25" alt="my-blinkie (1)" src="https://github.com/user-attachments/assets/1e32442c-cd5b-4c3c-9511-480a91d7e2b2" />
 
-ㅤ
+<div align="center">
 
-[<img alt="tiny eqi" src="https://github.com/user-attachments/assets/99aafa42-6179-47ab-8f57-dc2bded7f29f" />](https://github.com/ineedahumanstouch)
+<img alt="jane doe" src="https://github.com/user-attachments/assets/51eff772-1f3c-457c-b8d8-1a6537aaa5de" />
 
-𝗋𝖺𝗍
 
