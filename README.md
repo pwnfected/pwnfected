@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=pwnfected&color=B536da&style=plastic&label=unfortunate&abbreviated=true)  
 
 
-<img width="532" height="522" alt="erieri2" src="https://github.com/user-attachments/assets/2a5edf70-8694-482c-8eb5-1cc0f8846625" />
+<img alt="erieri2" src="https://github.com/user-attachments/assets/2a5edf70-8694-482c-8eb5-1cc0f8846625" />
 
 
 
@@ -26,7 +26,7 @@
 
 ㅤ
 
-[<img width="35" height="85" alt="tiny eqi" src="https://github.com/user-attachments/assets/99aafa42-6179-47ab-8f57-dc2bded7f29f" />](https://github.com/ineedahumanstouch)
+[<img alt="tiny eqi" src="https://github.com/user-attachments/assets/99aafa42-6179-47ab-8f57-dc2bded7f29f" />](https://github.com/ineedahumanstouch)
 
 𝗋𝖺𝗍
 
